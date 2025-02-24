@@ -1,4 +1,4 @@
-### 3 Steps To A State Job  
+### CA State Jobs  
 - https://calcareers.ca.gov/CalHRPublic/Landing/Jobs/Steps.aspx?step=1  
 - https://calcareers.ca.gov/CalHRPublic/Search/JobSearchResults.aspx#kw=INFORMATION%20TECHNOLOGY%20SPECIALIST  
 - https://calcareers.ca.gov/CalHRPublic/Search/JobSearchResults.aspx#kw=INFORMATION%20TECHNOLOGY%20ASSOCIATE  
